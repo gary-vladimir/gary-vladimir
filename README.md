@@ -17,7 +17,6 @@
 
 - 📫 How to reach me **gary@garybricks.com**
 
-- ⚡ Fun fact **People often tell me I write better English than Spanish even though Spanish is my mother tongue**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
