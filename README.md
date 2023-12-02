@@ -1,1 +1,1 @@
-![Hero](./GitHub_Hero.png)
+![Hero](./GitHub_Hero2.png)
